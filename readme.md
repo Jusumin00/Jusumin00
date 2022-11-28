@@ -7,6 +7,6 @@
 
 
 
-&nbsp; &nbsp; • 자본주의 좋아요 <br>
-&nbsp; &nbsp; • 월급날이 제일 좋아요 <br>
-&nbsp; &nbsp; • money money money🤑 <br>
+&nbsp; &nbsp; •  <br>
+&nbsp; &nbsp; •  <br>
+&nbsp; &nbsp; •  <br>
